@@ -1,3 +1,3 @@
-## Hi there 👋
+## Hi everyone 👋
 
-my name is jimin
+I'm Gachon Univ student and my major is sw
